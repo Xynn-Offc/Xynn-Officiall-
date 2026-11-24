@@ -1,2 +1,0 @@
-# Xynn-Officiall-
-wes cok
